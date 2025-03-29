@@ -15,6 +15,7 @@
 - 📫 How to reach me **faresgherbawi@gmail.com**
 
 - ⚡ Fun fact **I think I am Funy**
+- ✨ ***Building inspired projects & ♻️ Recreating existing websites for 🎯 practice & 📈 growth 🚀***
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
